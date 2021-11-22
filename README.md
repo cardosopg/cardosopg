@@ -1,4 +1,4 @@
-## 👋 Olá, eu sou Felipe Cardoso
+## 👋 Olá, eu sou Felipe
 
 :briefcase: **Atualmente trabalho como**: Porteiro
 
